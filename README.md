@@ -1,0 +1,2 @@
+# Proprio
+ Minhas coisas basica 
